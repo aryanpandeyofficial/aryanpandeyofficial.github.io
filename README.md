@@ -1,2 +1,2 @@
-# https-aryanpandeyofficial.github.io
+aryanpandeyofficial.github.io
 Aryan web 
